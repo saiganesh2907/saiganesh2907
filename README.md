@@ -2,7 +2,7 @@
 - 👀 I’m interested in cars
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on anyone
-- 📫 How to reach me ? INSTAGRAM @_saiganesh29
+- 📫 How to reach me ? INSTAGRAM @saiganesh.gangadhari
 - 😄 Pronouns: he
 - ⚡ Fun fact: nothing
 
